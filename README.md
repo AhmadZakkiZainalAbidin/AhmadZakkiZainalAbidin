@@ -11,7 +11,7 @@
 - I'am currently prepare for my profession🧬🎓
 - I have goal to become Profesional Medical Physics☢️🧑‍⚕️ and A Data Scietist📊
 - Fun Fact : Interest on research🔬 and studying📚 about data📈 and it's uses⚙️.
-- The Thunderbolt likes Games and Reading ❤️
+- The Thunderbolt⚡ likes Games and Reading ❤️
 
 ## **Skill Set**
 
