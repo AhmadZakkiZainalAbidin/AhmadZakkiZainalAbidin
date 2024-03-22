@@ -1,4 +1,4 @@
-# Hi, I'm Ahmad Zakki Fadhilurrahman -aka ZainalAbidin 👋😊 
+# ⚡Hi, I'm Ahmad Zakki Fadhilurrahman -aka ZainalAbidin The Thunderbolt⚡ 👋😊 
 
 <p align="center">
   <a href="https://www.linkedin.com/in/ahmad-zakki-f-29208128b"><img src="https://img.shields.io/badge/LinkedIn-Profile-blue?logo=linkedin" alt="LinkedIn"></a>
@@ -11,6 +11,7 @@
 - I'am currently prepare for my profession🧬🎓
 - I have goal to become Profesional Medical Physics☢️🧑‍⚕️ and A Data Scietist📊
 - Fun Fact : Interest on research🔬 and studying📚 about data📈 and it's uses⚙️.
+- The Thunderbolt likes Games and Reading ❤️
 
 ## **Skill Set**
 
